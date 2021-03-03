@@ -1,2 +1,0 @@
-# Bogi
-We Good JDPWR
